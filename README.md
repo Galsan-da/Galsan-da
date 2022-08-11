@@ -4,7 +4,7 @@
 
 ### Контакт: 
 
-<a href="https://t.me/galium864">galium864</a>
+[telegram] <a href="https://t.me/galium864">galium864</a>
 
 
 Проработал около 10 лет в сфере медицины. В данной сфере 
